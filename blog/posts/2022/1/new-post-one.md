@@ -5,4 +5,8 @@ categories:
   - javascript
 tags: post
 ---
-Hello, this is a new post.&nbsp;
+Hello, this is a new post.
+
+&nbsp;<img src="/uploads/bewareilive.jpg" width="250" height="250" />
+
+This is another test.
