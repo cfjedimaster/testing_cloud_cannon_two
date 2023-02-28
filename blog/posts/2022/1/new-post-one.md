@@ -7,6 +7,6 @@ tags: post
 ---
 Hello, this is a new post.
 
-&nbsp;<img src="/uploads/bewareilive.jpg" width="250" height="250" />
+&nbsp;<img src="/uploads/cobra-commander.jpg" width="720" height="540" />
 
 This is another test.
