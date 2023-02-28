@@ -44,7 +44,7 @@ module.exports = eleventyConfig => {
 		return english.format(d);
 	});
 
-	eleventyConfig.addPassthroughCopy("blog/images/*");
+	eleventyConfig.addPassthroughCopy("blog/uploads/*");
 
 	return {
 		dir: {
