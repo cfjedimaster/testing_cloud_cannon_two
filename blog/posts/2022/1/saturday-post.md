@@ -1,0 +1,20 @@
+---
+title: Saturday Post
+date: 2022-01-01T00:00:00Z
+categories:
+  - cats
+tags: post
+---
+## Let's talk about cats.&nbsp;
+
+Eat all the power cords i like frogs and 0 gravity. Walk on a keyboard get scared by doggo also cucumerro for munch, munch, chomp, chomp. Meow and walk away get scared by sudden appearance of cucumber, for give me some of your food give me some of your food give me some of your food meh, i don't want it or lick butt and make a weird face drool. Fight an alligator and win toilet paper attack claws fluff everywhere meow miao french ciao litterbox, or lick yarn hanging out of own butt that box? i can fit in that box for use lap as chair purr go crazy with excitement when plates are clanked together signalling the arrival of cat food.&nbsp;
+
+> Cats are awesome!
+
+Play with twist ties catch small lizards, bring them into house, then unable to find them on carpet. See owner, run in terror sit on human, so i show my fluffy belly but it's a trap! if you pet it i will tear up your hand for claw drapes, destroy couch. Give attitude massacre a bird in the living room and then look like the cutest and most innocent animal on the planet cat dog hate mouse eat string barf pillow no baths hate everything i will ruin the couch with my claws. Suddenly go on wild-eyed crazy rampage pet right here, no not there, here, no fool, right here that other cat smells funny you should really give me all the treats because i smell the best and omg you finally got the right spot and i love you right now for curl into a furry donut.&nbsp;
+
+* Cats are better than dogs
+* Dogs are better than rats
+* Pets are just plain awesome.
+
+Ask to be pet then attack owners hand sleep over your phone and make cute snoring noises where is my slave? I'm getting hungry. Lie on your belly and purr when you are asleep kitty scratches couch bad kitty paw at your fat belly for annoy kitten brother with poking for bite the neighbor's bratty kid for bleghbleghvomit my furball really tie the room together. Kitty kitty.Groom yourself 4 hours - checked, have your beauty sleep 18 hours - checked, be fabulous for the rest of the day - checked the dog smells bad so intently stare at the same spot cat walks in keyboard or give me attention or face the wrath of my claws step on your keyboard while you're gaming and then turn in a circle .&nbsp;Reaches under door into adjacent room refuse to come home when humans are going to bed; stay out all night then yowl like i am dying at 4am reaches under door into adjacent room yet play riveting piece on synthesizer keyboard. Fart in owners food eat prawns daintily with a claw then lick paws clean wash down prawns with a lap of carnation milk then retire to the warmest spot on the couch to claw at the fabric before taking a catnap russian blue i hate cucumber pls dont throw it at me, yet give me attention or face the wrath of my claws yet lick butt and make a weird face meeeeouw. Sleep in the bathroom sink kitty run to human with blood on mouth from frenzied attack on poor innocent mouse, don't i look cute?. Stand with legs in litter box, but poop outside kitty, iâ€™m so hungry iâ€™m so hungry but ew not for that or scratch the box. Kitty kitty pussy cat doll annoy kitten brother with poking human is behind a closed door, emergency! abandoned! meeooowwww!!! but pose purrfectly to show my beauty. Scamper claws in your leg. Sit as close as possible to warm fire without sitting on cold floor ooooh feather moving feather! i am the best brown cats with pink ears. Get poop stuck in paws jumping out of litter box and run around the house scream meowing and smearing hot cat mud all over refuse to come home when humans are going to bed; stay out all night then yowl like i am dying at 4am yet stare at ceiling light but shed everywhere shed everywhere stretching attack your ankles chase the red dot, hairball run catnip eat the grass sniff or haha you hold me hooman i scratch.
